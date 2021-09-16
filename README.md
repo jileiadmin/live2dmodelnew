@@ -1,0 +1,2 @@
+# live2dmodelnew
+thankyou
